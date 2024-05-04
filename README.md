@@ -1,0 +1,6 @@
+![image](https://github.com/saumyam2/Mental-Health-Discord-Bot/assets/121780095/84b45398-6d31-4ed8-830a-72803a28b457)
+![image](https://github.com/saumyam2/Mental-Health-Discord-Bot/assets/121780095/2dcca566-3512-4517-914f-be2da877bca1)
+![image](https://github.com/saumyam2/Mental-Health-Discord-Bot/assets/121780095/a08b0c15-382d-4e36-89ce-c25027ee1eba)
+![image](https://github.com/saumyam2/Mental-Health-Discord-Bot/assets/121780095/76055b67-93d8-4ec4-bacc-12ca380a0ea5)
+![image](https://github.com/saumyam2/Mental-Health-Discord-Bot/assets/121780095/aa3b60de-13d9-4b0d-a7a6-8fbc81e0ee1f)
+![image](https://github.com/saumyam2/Mental-Health-Discord-Bot/assets/121780095/41098a36-aad6-44aa-8e4f-ecbd86e6fb32)
